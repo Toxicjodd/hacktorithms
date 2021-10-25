@@ -1,0 +1,1 @@
+mereko kuch nhi aata
